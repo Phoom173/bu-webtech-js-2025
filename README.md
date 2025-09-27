@@ -1,0 +1,2 @@
+- Nickname : Phoom
+- Favorite Food : ไก่ย่าง
